@@ -45,5 +45,5 @@ strwpage (WIP)
 ━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
  </p>
 
-  <img src="https://i.postimg.cc/fWdKHwcX/42.gif" alt="stamp" width="100"/> <img src="https://i.postimg.cc/x8yNqX49/Tumblr-l-161100848667032.png" alt="stamp" width="100"/> <img src="https://i.postimg.cc/02rjy7GW/ezgif-27793c560eec51.gif" alt="stamp" width="100"/> <img src="https://i.postimg.cc/W3nxx5tr/Untitled605-20251016170213.png" alt="stamp" width="100"/>  <img src="https://64.media.tumblr.com/f1494ab3e694699f37557da526beaff9/ec8f693b87536b40-6d/s100x200/5014d79593adcea9f2288d7a8f6894acf12ce7d1.gifv" width="100"/>
+  <img src="https://64.media.tumblr.com/f1494ab3e694699f37557da526beaff9/ec8f693b87536b40-6d/s100x200/5014d79593adcea9f2288d7a8f6894acf12ce7d1.gifv" width="100"/>
 
