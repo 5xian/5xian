@@ -8,7 +8,7 @@
   ${\textsf{\color{#e1e8ed}　w2i/boop me 2 int (comf)}}$
 
 <p align="center">
- strawㅤ   <a href="https://sugaromantic.atabook.org"> ata</a>
+ strawㅤ   <a href="https://jonalover.atabook.org"> ata</a>
 </p>
 </div>
    
