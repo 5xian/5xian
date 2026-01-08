@@ -7,17 +7,17 @@
 <p align="center">
 ━━━━━━
  </p>
+ 
+ 
+
 
 <p align="center">
-        <a href="https://jonalover.atabook.org"> atabook ^__^</a>
+        <a href="https://jonalover.atabook.org"> sign ata</a> 
+    <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/white/34" alt="me" width="20" 
+  <p align="center">  
+  ${\textsf{\color{#e1e8ed}　hii}}$ 
 </p>
 </div>
-  
-  <p align="center">
-  ${\textsf{\color{#e1e8ed}　I don't talk much unless I feel comfortable with smn, but i gain confidence quickly  }}$  
-  ${\textsf{\color{#e1e8ed}　I don't usually like hugs unless I have a c*h on one of my ponies, ok ? ok}}$<img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/white/34" alt="me" width="20" 
-  <p align="center">  
-  ${\textsf{\color{#e1e8ed}　Pls w2i if im offt (offtab: im dont react boops) }}$ 
 
 
   <p align="center">
