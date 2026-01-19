@@ -14,11 +14,10 @@
 
 
 
-<p align="center">
-        <a href="https://jonalover.atabook.org"> ata</a> 
+<p align="center"> 
+  ${\textsf{\color{#e1e8ed}　ilovemybf}}$
     <img src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/white/34" alt="me" width="20" 
-  <p align="center">  
-  ${\textsf{\color{#e1e8ed}　hi }}$
+  <p align="center"> 
 </p>
 </div>
 
